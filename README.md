@@ -1,5 +1,5 @@
 # Zyone Idn
-## About me
+## 🧒 About me
 - 👋 Hi, I’m @zyone-idn
 - 👀 I'm not interested in anything
 - 🌱 I'm studying to be an unemployed
